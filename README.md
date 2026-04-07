@@ -1,1 +1,12 @@
 # s810659045
+###안녕하세요 만나서 반갑습니다.
+
+### 나는 지금 우송대학교 대학원에 재학중입니다.
+
+I'm currently studing on WSU Graduate school.
+
+I'm currently learning about AI
+
+ I'm looking to collaborate on project.
+
+I'm looking for help with AI App.
